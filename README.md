@@ -1,6 +1,6 @@
 ![wwwop](https://github.com/user-attachments/assets/19957734-f98e-47ed-a447-76200f46eec4)
 
-                                    ![](https://komarev.com/ghpvc/?username=splittergirl&label=my_viewers!&color=865e4d)
+                                    ![](https://komarev.com/ghpvc/?username=splittergirl&label=my_viewers!&color=c2908e)
 
      ![120bye](https://github.com/user-attachments/assets/c01b81f6-3d52-4879-b557-bc262f645888)
 
