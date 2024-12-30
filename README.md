@@ -1,5 +1,7 @@
 ![wwwop](https://github.com/user-attachments/assets/19957734-f98e-47ed-a447-76200f46eec4)
 
+                                    ![](https://komarev.com/ghpvc/?username=splittergirl&label=my-viewers!&color=#824349)
+
      ![120bye](https://github.com/user-attachments/assets/c01b81f6-3d52-4879-b557-bc262f645888)
 
                   ![yeah-2](https://github.com/user-attachments/assets/62adf461-ead8-4570-945c-e6a162defb9e)      splitters tiny resources collection!!       ૮꒰ྀི ›̥̥̥ ⸝⸝ ‹̥̥ ꒱ྀིა♡       ˎˊ˗
